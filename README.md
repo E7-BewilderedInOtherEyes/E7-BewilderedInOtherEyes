@@ -4,6 +4,8 @@ hello, I'm Biphenyl, Bip/Biphen/Nyl for short.. you may give me nicknames as wel
 
 im mostly dry to a lot of ppl, not bcus i dislike/hate u but i just dnnno wht to say, im vry friendly tho. im kinda childish, i make unfunny jokes, and i dont think b4 i speak (mostly)—pls lmk if i said smth insensitive/unhinge/stupid, i take vry long to realise smtimes.
 
+evry time i cant think of a response, i fenl like i want to claw my throat rly hard and rip it out
+
 i dont have a dni list, i block freely
 
 brb im doing smth💔💔
