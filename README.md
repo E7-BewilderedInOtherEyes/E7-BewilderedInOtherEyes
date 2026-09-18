@@ -2,7 +2,7 @@
 
 hello, I'm Biphenyl, Bip/Biphen/Nyl for short.. you may give me nicknames if u think none of these suits me! I'm a 15 y/o filipino, (platonically) married irl, and i draw. i dont rly do much in pt except hang around w my friends or jst going offtab.
 
-im mostly dry to a lot of ppl, not bcus i dislike/hate u but i just dnnno wht to say, im vry friendly tho. im kinda childish, i make unfunny jokes, and i dont think b4 i speak (mostly)—pls lmk if i said smth insensitive/unhinge/stupid, i take vry long to realise smtimes.
+im mostly dry to a lot of ppl, not bcus i dislike/hate u but i just dnnno wht to say, im vry friendly tho. im kinda childish, i make unfunny jokes, and i dont think b4 i speak (mostly)—pls lmk if i said smth insensitive/unhinge/stupid, i take vry long to realise smtimes.  uhh im bad at remeebering too
 
 if i sound dry all of a sudden (even if we're close), its either cus im busy or,, idk wht to say (x2). dont assume that u did smth wrong/nm
 
