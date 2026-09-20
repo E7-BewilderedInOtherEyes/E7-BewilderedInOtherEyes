@@ -11,5 +11,3 @@ evry time i cant think of a response, i fenl like i want to claw my throat rly h
 i luv educating ppl, mostly mental health disorders!! i dont talk abt them often, but u can always ask me :33,, just dont expect a paragraph (maybe i might send one,, we will never know....). i luv Michelle Mana's commentary/deep dive vids (on yt), she rly shaped how i think of ppl! i liek learning abt mental health, im a bit lazy sometimes tho
 
 i dont have a dni list, i block freely
-
-brb im doing smth💔💔
