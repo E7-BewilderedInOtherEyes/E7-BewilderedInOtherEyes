@@ -6,7 +6,14 @@
 
 nyello ❤️❤️ good day or evening 
 
-goal: facebook mom vibes idfk
+☀️☀️☀️☀️☀️🌹🌹🌸🌹🌹🌸🌸🌹🌈🌈
+
+<details>
+  <summary> <p align="center"> goals: </summary>
+  
+★ facebook mom vibes idfk
+
+</details>
 
 ___
 
