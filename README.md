@@ -7,3 +7,9 @@
 nyello ❤️❤️ good day or evening 
 
 goal: facebook mom vibes idfk
+
+___
+
+<p align="center"> <sub> $\color{#360000}{\textsf{(henlo.. maybe sign my straw/ata...)}}$
+<p align="center"><sub><a href="https://biphenylism.straw.page">strawpage</a></p>
+<p align="center"><sub><a href="https://fameandrichesrehabbitches.atabook.org/">atabook</a></p>
