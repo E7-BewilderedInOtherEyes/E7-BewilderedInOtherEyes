@@ -9,9 +9,17 @@ nyello ❤️❤️ good day or evening
 ☀️☀️☀️☀️☀️🌹🌹🌸🌹🌹🌸🌸🌹🌈🌈
 
 <details>
-  <summary> <p align="center"> goals: </summary>
+  <summary> <p align="center"> goals (random updates): </summary>
   
 ★ facebook mom vibes idfk
+
+★ 🐈🐈🐈🐈🐈🐈🐈
+
+★ be more human i think
+
+★ draw something else
+
+★ can someone suggest me a word tht i might use for my uhh user.. idk wht to choose hnlp
 
 </details>
 
