@@ -19,8 +19,6 @@ nyello ❤️❤️ good day or evening
 
 ★ draw something else
 
-★ can someone suggest me a word tht i might use for my uhh user.. idk wht to choose hnlp
-
 </details>
 
 ___
