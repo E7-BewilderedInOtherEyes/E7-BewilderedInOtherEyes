@@ -11,7 +11,7 @@ nyello ❤️❤️ good day or evening
 <details>
   <summary> <p align="center"> goals (random updates): </summary>
   
-★ facebook mom vibes idfk
+★ texting like a facebook mom❤️
 
 ★ 🐈🐈🐈🐈🐈🐈🐈
 
