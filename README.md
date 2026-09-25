@@ -4,7 +4,7 @@
   <img src="https://file.garden/ade0uRrc7hT3IuzM/nyanpasu.png" alt="Centered Image" width="900">
 </p>
 
-<p align="center"> $\color{#E27B6F}{\textsf{ᕼI, I'ᐯE ᗷEEᑎ ᗩ ᐯEᖇY ᗷᗩᗪ GIᖇᒪ, ᗪOᑎ'T YOᑌ ᔕEE?}}$
+<p align="center"> $\color{#E27B6F}{\textsf{Hi, I’ve been a very bad girl, don’t you see?}}$
 <p align="center"> $\color{#DE6454}{\textsf{So bad that I'm not even a girl anymore}}$
 <p align="center"> $\color{#D84936}{\textsf{Just a pile of skin and bones with no string}}$
 <p align="center"> $\color{#B43422}{\textsf{You still wanna fuck me, right? Hahahahaha}}$
