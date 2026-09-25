@@ -1,4 +1,4 @@
-## $\color{#E02E4B}{\textsf{i}}$
+## $\color{#E02E4B}{\textsf{My ugliness is not my fault, I know God just made me wrong}}$
 
 <p align="center">
   <img src="https://file.garden/ade0uRrc7hT3IuzM/nyanpasu.png" alt="Centered Image" width="900">
