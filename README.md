@@ -4,18 +4,7 @@
   <img src="https://file.garden/ade0uRrc7hT3IuzM/nyanpasu.png" alt="Centered Image" width="900">
 </p>
 
-<details>
-  <summary> <p align="center"> goals (random updates): </summary>
-  
-★ texting like a facebook mom❤️
-
-★ 🐈🐈🐈🐈🐈🐈🐈
-
-★ be more human i think
-
-★ draw something else
-
-</details>
+<p align="center"> $\color{#E27B6F}{\textsf{zzzz}}$
 
 ___
 
