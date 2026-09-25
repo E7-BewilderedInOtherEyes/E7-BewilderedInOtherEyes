@@ -1,4 +1,4 @@
-## wip wip wip
+## $\color{#E02E4B}{\textsf{i}}$
 
 <p align="center">
   <img src="https://file.garden/ade0uRrc7hT3IuzM/nyanpasu.png" alt="Centered Image" width="900">
