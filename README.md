@@ -18,5 +18,9 @@
   
 ___
 
+<p align="center"> $\color{#E22518}{\textsf{裏へ 裏へ 回り込む者}}$
+
 <p align="center"><sub><a href="https://biphenylism.straw.page">strawpage // <a href="https://fameandrichesrehabbitches.atabook.org/">atabook</a></p>
 <p align="center"><sub><a href="https://discordapp.com/users/1520289544333693053">discord // <a href="tiktok.com/@ungrateful_twat">tiktok</a></p>
+
+<p align="center"> $\color{#BE1328}{\textsf{こっぱみじんこに消しとばす}}$
