@@ -1,4 +1,6 @@
-# $\color{#BE1328}{\textsf{【﻿ＴＥＨＡＭＩＮＴ】}}$
+<div align="center">
+  <h1>$\color{#BE1328}{\textsf{【﻿ＴＥＨＡＭＩＮＴ】}}$</h1>
+</div>
 
 <p align="center"> $\color{#E02E4B}{\textsf{強欲から成る 暴動 絡まる害}}$
 <p align="center"> $\color{#E05262}{\textsf{48 2 71 564}}$
