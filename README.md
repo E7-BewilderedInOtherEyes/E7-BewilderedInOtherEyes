@@ -15,3 +15,4 @@ ___
 <p align="center"><sub><a href="https://biphenylism.straw.page">strawpage</a></p>
 <p align="center"><sub><a href="https://fameandrichesrehabbitches.atabook.org/">atabook</a></p>
 <p align="center"><sub><a href="https://discordapp.com/users/1520289544333693053">discord</a></p>
+<p align="center"><sub><a href="tiktok.com/@ungrateful_twat">tiktok</a></p>
