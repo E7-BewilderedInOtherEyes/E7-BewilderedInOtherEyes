@@ -8,7 +8,7 @@
 <p align="center"> $\color{#E05262}{\textsf{48 2 71 564}}$
   
 <p align="center">
-  <img src="https://file.garden/ade0uRrc7hT3IuzM/nyanpasu.png" alt="Centered Image" width="900">
+  <img src="https://file.garden/ade0uRrc7hT3IuzM/Illustration%2020260927.png" alt="Centered Image" width="900">
 </p>
 
 <p align="center"> $\color{#DE6454}{\textsf{命からがら 下種の力から}}$
