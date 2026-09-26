@@ -1,13 +1,12 @@
-## $\color{#E02E4B}{\textsf{My ugliness is not my fault, I know God just made me wrong}}$
-
+<p align="center"> $\color{#E02E4B}{\textsf{My ugliness is not my fault, I know God just made me wrong}}$
+<p align="center"> $\color{#E05262}{\textsf{Bang my head against the wall, I hate myself the more you talk}}$
+  
 <p align="center">
   <img src="https://file.garden/ade0uRrc7hT3IuzM/nyanpasu.png" alt="Centered Image" width="900">
 </p>
 
-<p align="center"> $\color{#E27B6F}{\textsf{Hi, I’ve been a very bad girl, don’t you see?}}$
-<p align="center"> $\color{#DE6454}{\textsf{So bad that I'm not even a girl anymore}}$
-<p align="center"> $\color{#D84936}{\textsf{Just a pile of skin and bones with no string}}$
-<p align="center"> $\color{#B43422}{\textsf{You still wanna fuck me, right? Hahahahaha}}$
+<p align="center"> $\color{#DE6454}{\textsf{Wear me out, turn me on, grab the knife, grab the salt}}$
+<p align="center"> $\color{#D84936}{\textsf{Fuck my head, until it's raw, you're taking over all my thoughts}}$
 
 ___
 
