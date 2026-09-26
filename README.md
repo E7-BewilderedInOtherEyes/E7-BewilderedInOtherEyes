@@ -1,13 +1,19 @@
-<p align="center"> $\color{#E02E4B}{\textsf{My ugliness is not my fault, I know God just made me wrong}}$
-<p align="center"> $\color{#E05262}{\textsf{Bang my head against the wall, I hate myself the more you talk}}$
+# $\color{#BE1328}{\textsf{【﻿ＴＥＨＡＭＩＮＴ】}}$
+
+<p align="center"> $\color{#E02E4B}{\textsf{強欲から成る 暴動 絡まる害}}$
+<p align="center"> $\color{#E05262}{\textsf{48 2 71 564}}$
+<p align="center"> $\color{#E05262}{\textsf{4 8 2 7 1 5 6 4}}$
+<p align="center"> $\color{#E05262}{\textsf{48 2 71 564}}$
   
 <p align="center">
   <img src="https://file.garden/ade0uRrc7hT3IuzM/nyanpasu.png" alt="Centered Image" width="900">
 </p>
 
-<p align="center"> $\color{#DE6454}{\textsf{Wear me out, turn me on, grab the knife, grab the salt}}$
-<p align="center"> $\color{#D84936}{\textsf{Fuck my head, until it's raw, you're taking over all my thoughts}}$
-
+<p align="center"> $\color{#DE6454}{\textsf{命からがら 下種の力から}}$
+<p align="center"> $\color{#DE6454}{\textsf{わだかまる寄り添う産廃}}$
+<p align="center"> $\color{#DE6454}{\textsf{砕け 壊れ 飢えた血がまた}}$
+<p align="center"> $\color{#D84936}{\textsf{生まれ 売られ 喰われその中}}$
+  
 ___
 
 <p align="center"> <sub> $\color{#360000}{\textsf{(henlo.. maybe sign my straw/ata...)}}$
